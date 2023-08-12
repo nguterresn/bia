@@ -1,3 +1,0 @@
-# Enfermeira Bia
-
-Olá!
